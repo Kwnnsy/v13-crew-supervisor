@@ -12,8 +12,7 @@ Selam Arkadaşlar Ben Kwnnsy Bugün Sizlere "Xpeaw", "Ktria" Kardeşleriminde Ya
 ![image](https://cdn.discordapp.com/attachments/1006829936818008084/1009158957866168440/Ekran_Alnts.PNG)
 ![image](https://cdn.discordapp.com/attachments/1006829936818008084/1009158958281412688/Ekran_Alnts2.PNG)
 ![image](https://cdn.discordapp.com/attachments/1006829936818008084/1009160074075308183/unknown.png)
-
-
+!
 
 
 
